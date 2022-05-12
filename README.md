@@ -30,4 +30,6 @@ Hoàn thành khóa học
 
  Hướng dẫn ứng tuyển xin việc làm
  
+ Nhận chứng chỉ khóa học
+ 
  
